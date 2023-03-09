@@ -16,6 +16,9 @@ My details and profile
 >>Skills: Python + UI + Communication + SQL
 
 📫 How to reach me?
+
 👉phanieducation123@gmail.com // venkataphaneendramannam@gmail.com
+
 🤙contact-->9398835934
+
 👀 LinkedIn 👉 https://www.linkedin.com/in/phani-mannam-2b4434269/
